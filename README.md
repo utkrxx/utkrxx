@@ -1,12 +1,14 @@
 <br/>
 
 <p align="center">
-
 <samp>
-  "And those who were seen dancing were thought to be insane by those who could not hear the music."<br/>
-  Friedrich Nietzsche
+  
+  I am Vengeance.<br/>
+  I am Shadows. <br/><br/>
+  I <br/> 
+  Am <br/> 
+  Batman
 </samp>
-
 </p>
 
 <br/>
